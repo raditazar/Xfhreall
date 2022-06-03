@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Xfhreall
-- 👀 I’m interested in black hole
-- 🌱 I’m currently learning breathing
+- 👀 I’m interested in some ball
+- 🌱 I’m currently learning to breath
 - 💞️ I’m looking to collaborate on drink some coffee
 - 📫 How to reach me just call me
 
